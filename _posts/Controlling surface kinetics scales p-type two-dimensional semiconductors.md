@@ -1,3 +1,0 @@
-Controlling surface kinetics scales p-type two-dimensional semiconductorshttps://www.nature.com/articles/s41563-026-02704-52026-08-10Nature Materials, Published online: 10 August 2026; doi:10.1038/s41563-026-02704-5
-
-The precise control of surface and near-surface atomic kinetics produces environmentally stable p-type two-dimensional (2D) semiconductors at wafer scale, providing a pathway for the manufacture of scalable 2D complementary electronics.https://www.nature.com/articles/s41563-026-02704-5

@@ -1,1 +1,0 @@
-Urban canals can cut temperatures by more than 2°C during heat waveshttps://phys.org/news/2026-08-urban-canals-temperatures-2c.htmlNew research from The University of Manchester has found that urban canals can cool their immediate surroundings by more than 2°C during heat waves.Mon, 10 Aug 2026 08:40:04 EDThttps://phys.org/news/2026-08-urban-canals-temperatures-2c.html
